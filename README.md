@@ -1,4 +1,4 @@
-#Eldwin Zhong Github Page
+# Eldwin Zhong Github Page
 My name is Eldwin Zhong, and I went to Brooklyn Technical Highschool in New York. Besides staying on my computer, I also love to swim. In highschool I had swam on the club and enjoyed it a lot. I hope to enjoy my time here at RIT.
 
 
